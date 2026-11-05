@@ -1,1 +1,0 @@
-# YaroslavSkachkov.github.io
